@@ -1,0 +1,1 @@
+# trendclip-ai-legal
